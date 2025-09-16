@@ -1,0 +1,2 @@
+# Magur
+Nft holder
